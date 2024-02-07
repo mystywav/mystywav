@@ -1,7 +1,6 @@
 -  ello,my name is @mystywav
--  i’m interested in tools and shortcuts and windows shet
--  i’m currently learning some coding languges n stuff and modeling and batch stuff ill prob continuue that :)
--  ways to reach me discord n more
+-  i’m interested in object show stuff
+-  and i'm realisng all my stuff here!
 - more stuff about me:
 - not english
 - bad spelling in english so expect me to type terrible or slow :/
